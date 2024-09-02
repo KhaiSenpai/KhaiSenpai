@@ -2,7 +2,7 @@
 - 😏 I’m interested in learning new things every day 🧠
 - 🌱 I’m currently learning the basics so plz help 😶‍🌫️
 - ⚖️ I’m looking to collaborate on games&apps🏅
-- 💋 here, fb @KhaiSenpai, 🐦@KllrKhaiSenpai, u/xkhaisenpai, https://www.clubhouse.com/@xkhaisenpai, t.me/KhaiSenpai, https://hal.red/Yy5836M, khaisenpai.cb.id
+- 💋 here, fb @KhaiSenpai, 🐦@KllrKhaiSenpai, u/xkhaisenpai, https://www.clubhouse.com/@xkhaisenpai, t.me/khaisenpai, https://hal.red/Yy5836M, khaisenpai.cb.id
 
 <!---
 KhaiSenpai/KhaiSenpai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
